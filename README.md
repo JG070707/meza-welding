@@ -1,1 +1,1 @@
-Tabajos de sodadura de acero
+Tabajos de sodadura
